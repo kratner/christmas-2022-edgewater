@@ -31,3 +31,7 @@ Mele Kalikimaka is Hawaii's way
 To say Merry Christmas
 A very Merry Christmas
 A very, very, Merry, Merry Christmas to you
+
+
+Hawai'i Christmas in San Francisco 2022
+
